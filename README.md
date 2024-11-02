@@ -1,4 +1,4 @@
 ## Hi there 👋
 
-<!--I'm Chitra Rao.
+I'm Chitra Rao.
 
